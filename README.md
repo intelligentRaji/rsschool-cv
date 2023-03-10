@@ -1,1 +1,1 @@
-https://intelligentRaji.github.io/rsschool-cv/cv
+https://intelligentRaji.github.io/rsschool-cv/cv1
